@@ -1,3 +1,3 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsdr own ellen] I HATE SDR AND I HOPE IT DISBANDS
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤart by ritokac_ on dc
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤart by ritokac_ on dc
 ![image](https://github.com/user-attachments/assets/bdc8695d-e202-40c6-90a2-1504471b8734)
